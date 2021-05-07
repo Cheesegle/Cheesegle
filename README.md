@@ -1,6 +1,6 @@
 ### 🧀🧀👌🧀🔥🔥🧀💯
 
-[http://3cheese.tech/](http://3cheese.tech/)
+[https://3cheese.tech/](https://3cheese.tech/)
 
 [![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=Cheesegle&show_icons=true&theme=radical)](https://github.com/anuraghazra/github-readme-stats)
 
