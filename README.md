@@ -1,6 +1,6 @@
 ### 🧀🧀👌🧀🔥🔥🧀💯
 
-[https://github.com/Cheesegle/Portifolio](Temporary portifolio)
+[https://github.com/Cheesegle/Portifolio](Portifolio)
 
 [https://replit.com/@collin9ex](https://replit.com/@collin9ex)
 
