@@ -1,8 +1,8 @@
 ### 🧀🧀👌🧀🔥🔥🧀💯
 
-[https://github.com/Cheesegle/Portifolio](Portifolio)
+https://github.com/Cheesegle/Portifolio
 
-[https://replit.com/@collin9ex](https://replit.com/@collin9ex)
+https://replit.com/@collin9ex
 
 Discord: Cheese#5555
 
